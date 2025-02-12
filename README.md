@@ -6,6 +6,7 @@ A resposta pode não parecer obvia, mas é sim as pessoas cuidam da vida deles.
 
 E o André é Cancelado!!
 
+descancelaram ele!
 
 
 
